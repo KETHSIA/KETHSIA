@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KETHSIA
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning   CSE IN BE .
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate with techie
 - 📫 How to reach me mail me up keths003@gmail.com
 
 <!---
